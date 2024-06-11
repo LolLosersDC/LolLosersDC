@@ -6,6 +6,9 @@ PS: If you're just here because we played in a match and you wanted to check out
 
 Did you know you can find me on PSN now? Sony thinks that you're too soft to be called "losers" so i my username is "RagequitsAreLame"!
 
+
+
+
 STREET FIGHTER 6 [Rank at time of DC - User Code]:
 
 Update: Hey everyone! It's 11/18 and I hit Master in SF6! Where can we go from here‽ Thanks to everyone for helping me in my Street Fighter journey from Rookie in SF5 to today. Well, except for -
