@@ -45,66 +45,66 @@ __________________
 
 
 
-STREET FIGHTER V [Level at time of DC - Rank at time of DC]:
+STREET FIGHTER V [Level at time of DC - Rank at time of DC]:  
 ARCHIVE - List Final. Welcome to Street Fighter 6!
 
 I hit Gold right before new year! And we're still there as of March! Let's keep it going!
 
-Playstation:
-gamekiller9870 [720 - Gold]
-Chevrolos [510 - Gold]
-Dragonmanha [360]
-VxGief03 [277]
-FRESH_FRESKO [247]
-SpitSims [211 - Gold]
-Neeck0 [48 - Silver]
-The_Ajcito [42]
-MJAY-P5 [31]
-Superlegogreen [19] 
+Playstation:  
+gamekiller9870 [720 - Gold]  
+Chevrolos [510 - Gold]  
+Dragonmanha [360]  
+VxGief03 [277]  
+FRESH_FRESKO [247]  
+SpitSims [211 - Gold]  
+Neeck0 [48 - Silver]  
+The_Ajcito [42]  
+MJAY-P5 [31]  
+Superlegogreen [19]   =
 
-PC:
-enigmaAi16 [710 - Silver] 
-ChunkE_MunkE [389 - Super Silver]
-thankshomie [293]
-bnunjo11 [257 - Super Silver]
-StopBlockingPlz [127 - Ultra Silver] 
-Scorpanda [35 - Silver]
+PC:  
+enigmaAi16 [710 - Silver]   
+ChunkE_MunkE [389 - Super Silver]  
+thankshomie [293]  
+bnunjo11 [257 - Super Silver]  
+StopBlockingPlz [127 - Ultra Silver]   
+Scorpanda [35 - Silver]  
+
+__________________  
+
+
+
+MULTIVERSUS [Level at time of DC]:   
+ARCHIVE - List Final.  
+
+Steam:  
+LunaLux [35]  
+Fvlgore [33]  
+lazytato [30]  
+Zebraika [30]  
+Goblussy [24]  
+Tishkeeli [21]  
+Popetoaster [16]  
+
+Playstation:  
+TMS-Soulz [32]  
+Dark_souls123456 [28] (Duo with kitty_bear08. You both walked off so you both make the list. Welcome.)  
+DTB4Ljalen [27]  
+LostWinner- [25]  
+JGIBroncos31 [20]  
+kitty_bear08 [19]  
+  
+Xbox:  
+Carl ccc [30]  
+l G8 l   [23]  
+Godly ClutchYT [22]  
+
+
 
 __________________
 
 
-
-MULTIVERSUS [Level at time of DC]: 
-ARCHIVE - List Final. 
-
-Steam:
-LunaLux [35]
-Fvlgore [33]
-lazytato [30]
-Zebraika [30]
-Goblussy [24]
-Tishkeeli [21]
-Popetoaster [16]
-
-Playstation:
-TMS-Soulz [32]
-Dark_souls123456 [28] (Duo with kitty_bear08. You both walked off so you both make the list. Welcome.)
-DTB4Ljalen [27]
-LostWinner- [25]
-JGIBroncos31 [20]
-kitty_bear08 [19]
-
-Xbox:
-Carl ccc [30]
-l G8 l   [23]
-Godly ClutchYT [22]
-
-
-
-__________________
-
-
-SUPER SMASH BROS ULTIMATE:
+SUPER SMASH BROS ULTIMATE:  
 Gibbikyu on Youtube. Keep on working on that Cloud, buddy.
 
 
@@ -112,39 +112,39 @@ __________________
 
 
 
-FANTASY STRIKE [Level at time of DC]: 
-ARCHIVE - List Final. Good games to everyone in the Fantasy Strike community!
+FANTASY STRIKE [Level at time of DC]:   
+ARCHIVE - List Final. Good games to everyone in the Fantasy Strike community!  
 
-Steam:
-imbad [63-16] 
-Loaf of Bean [24-24]
-Daxter016 [22-7]
+Steam:  
+imbad [63-16]   
+Loaf of Bean [24-24]  
+Daxter016 [22-7]  
+  
+Playstation:  
+Deacom st jones [160-29]  
+MOIEN [85-11]  
+UminWolf [78-8]  
+Kyng_BossGod [60-26]   
+Peppi_Fredo [56-27, 59-14]   
+FranckR2508 [37-34]  
+MysticDeadman [30-12]   
+UrSoBadEzW [22-9]   
 
-Playstation:
-Deacom st jones [160-29]
-MOIEN [85-11]
-UminWolf [78-8]
-Kyng_BossGod [60-26] 
-Peppi_Fredo [56-27, 59-14] 
-FranckR2508 [37-34]
-MysticDeadman [30-12] 
-UrSoBadEzW [22-9] 
-
-Switch:
-scarydragondaddy [62-22, 139-32] 
-boulie [135-57]
-badla [84-65]
-THE_SHANKER_ [77-16]
-memo562 [54-42]
-Izzy200 [54-11]
-arrowlong [52-52]
-WRATHHOFNATE [40-30]
-bug1978_Switch [36-9]
-Ponomo [20-14]
-jumbotron [19-10]
-
-
+Switch:  
+scarydragondaddy [62-22, 139-32]   
+boulie [135-57]  
+badla [84-65]  
+THE_SHANKER_ [77-16]  
+memo562 [54-42]  
+Izzy200 [54-11]  
+arrowlong [52-52]  
+WRATHHOFNATE [40-30]  
+bug1978_Switch [36-9]  
+Ponomo [20-14]  
+jumbotron [19-10]  
 
 
-~Redemption List~
+
+
+~Redemption List~  
 Tgbogebus (Switch)
