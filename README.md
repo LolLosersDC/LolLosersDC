@@ -6,7 +6,7 @@ PS: If you're just here because we played in a match and you wanted to check out
 
 Did you know you can find me on PSN now? Sony thinks that you're too soft to be called "losers" so i my username is "RagequitsAreLame"!
 
-
+___
 
 
 STREET FIGHTER 6 [Rank at time of DC - User Code]:
@@ -44,7 +44,7 @@ Slamma [G5 - 2563512840]
 Adam Smasher [G4 - 2471565450]  
 Holyshield [G3 - 2437038933]  
 
-__________________
+___
 
 
 
@@ -73,7 +73,7 @@ bnunjo11 [257 - Super Silver]
 StopBlockingPlz [127 - Ultra Silver]   
 Scorpanda [35 - Silver]  
 
-__________________  
+___  
 
 
 
@@ -104,14 +104,14 @@ Godly ClutchYT [22]
 
 
 
-__________________
+___
 
 
 SUPER SMASH BROS ULTIMATE:  
 Gibbikyu on Youtube. Keep on working on that Cloud, buddy.
 
 
-__________________
+___
 
 
 
