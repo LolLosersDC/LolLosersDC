@@ -11,10 +11,6 @@ ___
 
 STREET FIGHTER 6 [Rank at time of DC - User Code]:
 
-Update: Hey everyone! It's 11/18 and I hit Master in SF6! Where can we go from here‽ Thanks to everyone for helping me in my Street Fighter journey from Rookie in SF5 to today. Well, except for -
-
-Special shout out to: MegaDeath [Dia 1 - 3409202068] who not only DCed in their losing super animation, but proceeded to name change to "ModCtrls=Sissy" after our match because they lack the ability to self reflect.
-
 
 JustaJuriLover [MR1545 - 2302221918]  
 C.C. [MR1511 - 2677565040]  
@@ -22,6 +18,7 @@ drewbertt [MR1485 - 4116054124]
 Trainthehitman [MR1472 - 3054033585]  
 Pr_Veterano [MR1462 - 2454646730]  
 BLKBLT [MR1454 - 2602961128]  
+$entabo [MR1450 - 2548236493]  
 when's seth? [MR1412 - 1721266806]  
 BodegaRyu [MR1410 - 1716974596]  
 JayB [MR1402 - 1762484638]  
@@ -41,6 +38,7 @@ JSH3LLZ [D2 - 2232445238]
 Goku [D2 - 1584867448]  
 FireShot [D1 - 1844461638]  
 Fizz [D1 - 4003295491]  
+MegaDeath [D1 - 3409202068]  
 Death [P5 - 1082776610]  
 Ottokard [P4 - 3033680406]  
 hyperHICO [P3 - 4251285827] Give me my Double Perfect, you coward. https://www.youtube.com/watch?v=TFYgoK1PSvQ  
