@@ -12,9 +12,11 @@ ___
 STREET FIGHTER 6 [Rank at time of DC - User Code]:
 
 
+kylez [MR1640 - 1019471372]  
 JustaJuriLover [MR1545 - 2302221918]  
 Kash [MR1518 - 3490574317]  
 C.C. [MR1511 - 2677565040]  
+Necro17 [MR1507 - 1000766754]  
 Sobeman209 [MR1500 - 1914356760]  
 drewbertt [MR1485 - 4116054124]  
 CrunchPunch [MR1483 - 3683661128]  
