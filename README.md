@@ -11,9 +11,10 @@ ___
 
 STREET FIGHTER 6 [Rank at time of DC - User Code]:
 
-
+(Yo, Button-Pusher. Don't think I've forgotten you. I'm just packing right now and your info is tucked away. I'll add it soon. No worries. Love you.)  
 kylez [MR1640 - 1019471372]  
 JustaJuriLover [MR1545 - 2302221918]  
+Aaron [MR1535 - 1326468839]  
 Kash [MR1518 - 3490574317]  
 C.C. [MR1511 - 2677565040]  
 Necro17 [MR1507 - 1000766754]  
@@ -32,6 +33,7 @@ LeverlessLoser [MR1400 - 2977070531]
 Kyo_sf6 [MR1397 - 1607650774]  
 Eep! [MR1385 - 3418309599]  
 SF6 Is Trash [MR1379 - 3616152762]  
+Oh Mai Gosh [MR1347 - 2264097497]  
 CHIZUZ [MR1328 - 1867563687]  
 ncp21 [MR1288 - 1099496191]  
 Sf4_is_Better [MR1252 - 2777109929]  
@@ -122,7 +124,7 @@ ___
 
 
 SUPER SMASH BROS ULTIMATE:  
-Gibbikyu on Youtube. Keep on working on that Cloud, buddy.
+Special shout out to Gibbikyu on Youtube. Keep on working on that Cloud, buddy.
 
 
 ___
